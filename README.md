@@ -3,4 +3,4 @@
 - 📫 Instagram: yglo2ious_ria 
 - 😄 she/her
 - 🤍 I like:🍵📚💯🎾🛍️🧑‍🤝‍🧑🎨🏋️🍳✈️
-- 🤝 I luv collaborating on projects and exchanging ideas! Feel free to connect with me~
+- 🤝 I love collaborating on projects and exchanging ideas! Feel free to connect with me~
